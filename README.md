@@ -20,8 +20,6 @@ Steven D. Kelley For President 2024 Contact Information / Стивен Д. Ке�
 <br>
 Website / сайт: https://www.stevendkelley2024.com/
 <br>
-Telegram Group / телеграмм: https://t.me/stevendkelleyforpresident
-<br>
 Telegram Group / телеграмм: https://t.me/sdkelleypresident
 <br>
 <br>
